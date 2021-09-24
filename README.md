@@ -1,0 +1,2 @@
+# osuskins
+wide
